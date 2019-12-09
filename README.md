@@ -1,1 +1,0 @@
-# Zombie-VMs-VirtualG.uk.zip
